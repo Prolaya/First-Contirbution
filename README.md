@@ -1,2 +1,2 @@
-# First-ontirbution
+# First-contirbution
 contribute bros
